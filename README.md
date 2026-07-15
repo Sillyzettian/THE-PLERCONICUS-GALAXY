@@ -1,0 +1,3 @@
+Ok so Github accepts files only under 25MB and so the 80 MB is kinda too fat...
+https://www.mediafire.com/file/rnsj8d5ife501lj/Plerconicus.zip/file
+Here you go have fun
